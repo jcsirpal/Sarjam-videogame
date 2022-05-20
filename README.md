@@ -3,4 +3,4 @@ videojuego de la leyenda del Sajama
 
 llenar la encuesta. 
 
-https://docs.google.com/forms/d/e/1FAIpQLSeY124mAVa7o9pr5Qby9QjNMf63m_zzyaJggZcvyX-zl333fA/viewform
+https://forms.gle/cdFY4tjq3wQeKKiq8
